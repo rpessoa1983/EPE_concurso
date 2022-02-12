@@ -60,3 +60,8 @@ VIII. Legislação básica do setor de gás natural
 e biocombustíveis: Legislação brasileira relacionada às atividades de produção, processamento, distribuição e
 revenda de gás natural e biocombustíveis – Lei nº 9.427/1996; Lei nº 9.478/1997; Lei nº 11.097/2005, Lei nº
 11.909/2009; Lei nº 13.576/2017;dentre outras.
+
+
+## Livros
+
+  - 
